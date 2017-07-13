@@ -4,6 +4,8 @@ author: https://forum.fivem.net/u/loqrin/summary
 
 Editing script: https://fivefrance.fr/user/rdz
 
+Preview of Material_Load: https://youtu.be/B32-xvPCdP8
+
 Youtube : https://www.youtube.com/channel/UC7cOssWHSyWgxnVZ3Q-2iIQ
 
 Discord : https://discord.gg/b6aB5wS
