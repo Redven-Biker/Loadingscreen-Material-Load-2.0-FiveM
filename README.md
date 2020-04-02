@@ -8,7 +8,7 @@ Preview of Material_Load: https://youtu.be/B32-xvPCdP8
 
 Youtube : https://www.youtube.com/channel/UC7cOssWHSyWgxnVZ3Q-2iIQ
 
-Discord : https://discord.gg/b6aB5wS
+Discord : https://discord.gg/QW4TDJP
 
 ![alt tag](https://img4.hostingpics.net/pics/759082bleujaune.png)
 
